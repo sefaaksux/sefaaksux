@@ -1,4 +1,5 @@
-![safaaksu](https://github.com/sefaaksux/sefaaksux/assets/113643261/191ebe8f-c6dd-418b-9982-17e7b74c8651)
+![CELAL SAFA AKSU](https://github.com/sefaaksux/sefaaksux/assets/113643261/92e6cfc1-efa5-4156-9cd1-d38bdf2bc1da)
+
 
 
 <h1 align="center">Hi 👋, I'm Celal Safa Aksu</h1>
